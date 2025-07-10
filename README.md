@@ -22,4 +22,4 @@
 
 立即点击上方任意入口，体验2025年日本AV的极致之旅！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/dtnnn20250710/riben188888 ）</span> 
